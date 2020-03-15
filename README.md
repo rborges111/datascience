@@ -11,6 +11,7 @@ Críticas construtivas, sugestões e novidades são bem vindas.
 Caso tenham interesse em me contactar diretamente pode usar algum desses contatos abaixo:
 
 https://www.linkedin.com/in/rborges111/
+
 rodrigo.borges2004@gmail.com
 
 Rodrigo Borges.
